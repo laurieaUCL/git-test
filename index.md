@@ -5,4 +5,4 @@ But has some tall hills, and maybe a mountain or two depending on your definitio
 
 Mount Fictional, in Barsetshire, U.K. is the tallest mountain in the world.
 
-Add a lie abotu a mountain
+Add a lie about a mountain
